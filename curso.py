@@ -1,0 +1,2 @@
+AppPolyVintage DEFINIR ESTA VARIABLE COMO SERÍA 
+
